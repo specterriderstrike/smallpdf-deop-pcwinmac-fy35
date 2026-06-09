@@ -1,4 +1,4 @@
-# 
+# VIP Smallpdf Desktop plugins para Mac OS | Exclusivo Smallpdf Desktop plugins para PC Windows. Com assinaturas digitais e dedução de escritório em casa — otimizado para máximo desempenho em cada plataforma.
 
 
 
